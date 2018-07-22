@@ -20,5 +20,6 @@
 ## October
 ### NoMBe @ The Independent (10/6)
 ### Gary Clark Jr @ The Fillmore (10/9, 10/10, 10/11, 10/12)
+### Ty Segall @ The Chapel (10/21)
 ## December
 ### Kurt Vile & The Violators @ Fox Theater (12/12)
