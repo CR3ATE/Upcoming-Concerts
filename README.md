@@ -25,3 +25,5 @@
 ### Mitski @ The Warfield (11/3)
 ## December
 ### Kurt Vile & The Violators @ Fox Theater (12/12)
+## January
+### NAO @ The Warfield (1/16)
