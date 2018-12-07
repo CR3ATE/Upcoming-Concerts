@@ -25,5 +25,16 @@
 ### Mitski @ The Warfield (11/3)
 ## December
 ### Kurt Vile & The Violators @ Fox Theater (12/12)
+### Thundercat @ 1015 Folsom (12/20)
+### Miguel @ Fort Mason (12/31)
+### Odesza @ The Warfield (12/31)
 ## January
 ### NAO @ The Warfield (1/16)
+### Real Estate @ The Chapel (1/31-2/2)
+## February
+### Jay Pharoah @ Cobb's Comedy (2/8/2-10)
+### Mo @ Fox Theater (2/9)
+## March
+### Jungle @ Fox Theater (3/5)
+### Action Bronson (3/11)
+### James Blake @ Fox Theater (3/12)
