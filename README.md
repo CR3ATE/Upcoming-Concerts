@@ -13,9 +13,11 @@
 ### Jungle @ Fox Theater (3/5)
 ### Action Bronson (3/11)
 ### James Blake @ Fox Theater (3/12)
+### Vince Staples @ Fox Theater (3/29)
 ### Mt. Joy @ The Fillmore (3/30)
 ## April
 ### Coachella (4/12-14)
+### Do It Ourselves Festival (4/26-28)
 ## May
 ### The Rolling Stones @ Levi's (5/18)
 ### Bottlerock (5/24-26)
